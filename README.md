@@ -6,38 +6,41 @@ Awesome remixes / mashups / reinterpretations of Big Shaq's 'Man's not hot'
 
 ## Remixes
 
-### Haddaway - What is love Remix
+### Haddaway - What is lov
 https://www.youtube.com/watch?v=E_XYIHbPO84
 
-### Pokémon Theme Song Remix
+### Pokémon Theme Son
 https://www.youtube.com/watch?v=dptghy0ZF6w
 
-### Desiigner - Panda Remix
+### Desiigner - Pand
 https://www.youtube.com/watch?v=-Bz7NmpU9u0
 
-### Mia - Paper Planes Remix
+### Mia - Paper Plane
 https://www.youtube.com/watch?v=Vaupacp_v78
 
-### Darude - Sandstorm Remix
+### Darude - Sandstorm
 https://www.youtube.com/watch?v=fp3MvrSOtPs
 
-### XXXTENTACION - Look At Me Remix
+### XXXTENTACION - Look At Me
 https://www.youtube.com/watch?v=gOg7xSa3Zfw
 
-### Future - Mask off Remix
+### Future - Mask off
 https://www.youtube.com/watch?v=lTWmcuZ41-A
 
-### MC Hammer - Can't touch this Remix
+### MC Hammer - Can't touch this
 https://www.youtube.com/watch?v=D0UecS_7IDI
 
-### Kendrick Lamar - Humble Remix
+### Kendrick Lamar - Humble
 https://www.youtube.com/watch?v=jqYtlHJ5KWE
 
-### Luis Fonsi - Despacito Remix
+### Luis Fonsi - Despacito
 https://www.youtube.com/watch?v=nFeV-nuyYwo
 
-### Gorillaz - Feel Good Inc. Remix
+### Gorillaz - Feel Good Inc.
 https://www.youtube.com/watch?v=DyMY2jbeLEI
 
-### Foster the People - Pumped up kicks Remix
+### Foster the People - Pumped up kicks
 https://www.youtube.com/watch?v=TIi1yMSGybs
+
+### Eiffel 65 - I'm blue
+https://www.youtube.com/watch?v=1f5LIxGgouY
