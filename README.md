@@ -25,5 +25,8 @@ https://www.youtube.com/watch?v=gOg7xSa3Zfw
 ## Future - Mask off Remix
 https://www.youtube.com/watch?v=lTWmcuZ41-A
 
-## MC Hammer - Can't touch this remix
+## MC Hammer - Can't touch this Remix
 https://www.youtube.com/watch?v=D0UecS_7IDI
+
+## Kendrick Lamar - Humble Remix
+https://www.youtube.com/watch?v=jqYtlHJ5KWE
