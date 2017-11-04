@@ -38,3 +38,6 @@ https://www.youtube.com/watch?v=nFeV-nuyYwo
 
 ### Gorillaz - Feel Good Inc. Remix
 https://www.youtube.com/watch?v=DyMY2jbeLEI
+
+### Foster the People - Pumped up kicks Remix
+https://www.youtube.com/watch?v=TIi1yMSGybs
