@@ -6,11 +6,14 @@ Awesome remixes / mashups / reinterpretations of Big Shaq's 'Man's not hot'
 
 ## Remixes
 
+### Pokémon Theme Song
+https://www.youtube.com/watch?v=dptghy0ZF6w
+
+### Ghostbusters Theme Song
+https://www.youtube.com/watch?v=70bZni7mvYU
+
 ### Haddaway - What is lov
 https://www.youtube.com/watch?v=E_XYIHbPO84
-
-### Pokémon Theme Son
-https://www.youtube.com/watch?v=dptghy0ZF6w
 
 ### Desiigner - Pand
 https://www.youtube.com/watch?v=-Bz7NmpU9u0
