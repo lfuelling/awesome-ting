@@ -44,3 +44,6 @@ https://www.youtube.com/watch?v=TIi1yMSGybs
 
 ### Eiffel 65 - I'm blue
 https://www.youtube.com/watch?v=1f5LIxGgouY
+
+### Jake Paul - It's Everyday Bro
+https://www.youtube.com/watch?v=Aw59--GDLN8
