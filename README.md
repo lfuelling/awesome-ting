@@ -4,10 +4,10 @@ Awesome remixes of Big Shaq's 'Man's not hot'
 - orig. booth: https://www.youtube.com/watch?v=5zexg3wFN70
 - orig. music video: https://www.youtube.com/watch?v=3M_5oYU-IsU
 
-## What is love
+## Haddaway - What is love Remix
 https://www.youtube.com/watch?v=E_XYIHbPO84
 
-## Pokémon Theme Song
+## Pokémon Theme Song Remix
 https://www.youtube.com/watch?v=dptghy0ZF6w
 
 ## Desiigner - Panda Remix
