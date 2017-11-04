@@ -12,10 +12,10 @@ https://www.youtube.com/watch?v=dptghy0ZF6w
 ### Ghostbusters Theme Song
 https://www.youtube.com/watch?v=70bZni7mvYU
 
-### Haddaway - What is lov
+### Haddaway - What is love
 https://www.youtube.com/watch?v=E_XYIHbPO84
 
-### Desiigner - Pand
+### Desiigner - Panda
 https://www.youtube.com/watch?v=-Bz7NmpU9u0
 
 ### Mia - Paper Plane
