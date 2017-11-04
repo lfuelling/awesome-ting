@@ -1,6 +1,6 @@
 # awesome-ting [![Awesome](https://awesome.re/badge.svg)](https://awesome.re)
 
-![Big Shaq](https://photos.myjoyonline.com/photos/news/201710/6512233536121_7622656847195.jpg)
+![Big Shaq](./68747470733a2f2f70686f746f732e6d796a6f796f6e6c696e652e636f6d2f70686f746f732f6e6577732f3230313731302f363531323233333533363132315f373632323635363834373139352e6a7067.jpeg)
 
 Awesome remixes / mashups / reinterpretations of Big Shaq's 'Man's not hot' 
 - orig. booth: https://www.youtube.com/watch?v=5zexg3wFN70
