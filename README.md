@@ -8,6 +8,9 @@ Awesome remixes / mashups / reinterpretations of Big Shaq's 'Man's not hot'
 
 ## Remixes
 
+### Thomas The Ting Engine
+https://www.youtube.com/watch?v=xU5HP7aCfAk
+
 ### Pokémon Theme Song
 https://www.youtube.com/watch?v=dptghy0ZF6w
 
